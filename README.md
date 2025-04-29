@@ -1,1 +1,1 @@
-Zahid Halel Santos Ramayo 2AMPr 
+Zahid Halel Santos Ramayo 2A programación
